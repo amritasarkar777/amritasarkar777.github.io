@@ -1,4 +1,4 @@
-# Amrita Sarkar
+# About Amrita Sarkar
 **Product Manager | B2B SaaS & AI Automation | Vertical Ownership**
 
 📍 London, UK  
